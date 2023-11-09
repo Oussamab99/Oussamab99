@@ -14,4 +14,6 @@ I am deeply committed to continuous learning and professional development in bot
 
 I am eager to collaborate on significant projects that not only challenge me to apply and expand my current skill set but also contribute to meaningful advancements in technology.
 
-- 📫 How to reach me :     📨 email : oussamabouraihan@gmail.com       👩🏻‍💻 linkedin : @oussamabouraihan (https://www.linkedin.com/in/oussama-bouraihan-882955207/)
+- 📫 How to reach me :
+1. - 📨 email : oussamabouraihan@gmail.com
+2. - 👩🏻‍💻 linkedin : @oussamabouraihan (https://www.linkedin.com/in/oussama-bouraihan-882955207/)
